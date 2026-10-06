@@ -1,0 +1,2 @@
+# cursed-coins
+slots casino
